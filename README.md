@@ -1,2 +1,4 @@
 # Aeroweb
-Projet Aéroweb avec Collégiens.
+Projet AEROGIRLZ.
+
+Avec Camille, Narimene, Fatima, Paëf, Boussaïna.
